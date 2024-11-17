@@ -1,4 +1,5 @@
-![Travel Assistant Banner](https://www.canva.com/design/DAGWo9OWPfA/kAe4OPUgOFxotYdjkxUV2w/edit?ui=eyJIIjp7IkEiOnRydWV9fQ)
+![Travel Assistant Banner]![Cover letter](https://github.com/user-attachments/assets/d4a6493a-2212-4542-a902-51175925f671)
+
 
 
 # Travel and Hospitality Assistant
