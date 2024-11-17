@@ -1,3 +1,4 @@
+![Travel Assistant Banner](https://www.canva.com/design/DAGWo9OWPfA/kAe4OPUgOFxotYdjkxUV2w/edit?ui=eyJIIjp7IkEiOnRydWV9fQ)
 
 
 # Travel and Hospitality Assistant
